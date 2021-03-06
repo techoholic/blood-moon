@@ -1,0 +1,2 @@
+# blood-moon
+[Choose your path] Long ago, the people of planet Earth lived in harmony, breathing the same air; living under the same sky. As we already know, humans living in peace try their hardest to inflict chaos, and split themselves apart, such as with the Great Solar Schism. The humans -- in their infinite wisdom -- split themselves into two factions: the Cult of the Sun, and the Cult of the Moon.
